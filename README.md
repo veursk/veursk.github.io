@@ -1,1 +1,0 @@
-# veursk.github.io
